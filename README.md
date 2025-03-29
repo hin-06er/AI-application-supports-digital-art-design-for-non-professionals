@@ -1,1 +1,1 @@
-# [Thesis] SMART CONTACT LENSES Project by Dong Thu Nhien
+# [Thesis] DIGITAL ART DESIGN Project by DONG THU NHIEN
